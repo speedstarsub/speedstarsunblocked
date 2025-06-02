@@ -14,13 +14,13 @@ Challenging Gameplay: Unlike traditional racing games that rely on steering and 
 Quick Sessions: Races are short and intense, making the game perfect for short breaks or quick bursts of fun.
 No Sign-Up Needed: Most platforms allow you to jump right in without creating an account.
 
-****Where to Play
+**Where to Play**
 You can find Speed Stars Unblocked on several trusted platforms:
 https://speedstars-unblocked.github.io
 Just choose your favorite site, click play, and you’re off to the races.
 
-**Watch, Save, and Share
-**Want to see gameplay before trying it out? Check out this YouTube video for tips and gameplay:
+**Watch, Save, and Share**
+Want to see gameplay before trying it out? Check out this YouTube video for tips and gameplay:
 📺 YouTube: https://www.youtube.com/watch?v=YazIiLWZgUk
 
 **Final Thoughts**
